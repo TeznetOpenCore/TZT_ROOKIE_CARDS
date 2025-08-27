@@ -1,2 +1,3 @@
 # TZT_ROOKIE_CARDS
-READ THAT AGA!N
+Teznet is Love.
+Teznet is Life.
